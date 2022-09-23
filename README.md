@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **shahisamira03@gmail.com**
 
-- 💪 "SEIZE THE DAY"
+- 💪 "Seize the day"
 
 <p align="left">
 </p>

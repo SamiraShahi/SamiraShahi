@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **shahisamira03@gmail.com**
 
-- 💪 Motivation **"It's not going to be easy,but it's going to worth it."**
+- 💪 "SEIZE THE DAY"
 
 <p align="left">
 </p>

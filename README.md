@@ -13,7 +13,7 @@
 
 - 👩I am **a Bit student.**
 
-- 📫 How to reach me **shahisamira03@gmail.com**
+- 📫 Reach me through **shahisamira03@gmail.com**
 
 - 💪 "Seize the day"
 

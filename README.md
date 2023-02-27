@@ -1,7 +1,7 @@
 
 
 <h1 align="center">Hi 👋, I'm Samira Shahi</h1>
-<h3 align="center">"A passionate learner".</h3>
+<h3 align="center"></h3>
 
 <p align="right"> <img src="https://komarev.com/ghpvc/?username=samirashahi&label=Profile%20views&color=0e75b6&style=flat" alt="samirashahi" /> </p>
 
